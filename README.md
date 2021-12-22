@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @xylotope
+- 👀 I’m interested in games, graphics, mobile applications, VR, AR, AI, automation, IOT, statistics, and biology.
+- 💞️ I’m looking to collaborate on anything related to the above that's fun and exciting.
